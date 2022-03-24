@@ -1,4 +1,5 @@
 # My Greatest Fear
+### The Fear of Heights
 
 My greatest fear is the fear of **heights**. Whenever I am at a high place my heart starts racing. If there is railings over a high place I will always stay away from them.
 I am afraid of falling whenever I look down from a high place. My fear of heights probably started when I went up the CN tower when I was younger
